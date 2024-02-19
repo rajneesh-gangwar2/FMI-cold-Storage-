@@ -1,1 +1,1 @@
-#Basically, the role of motive of this store is that keep the products fresh and secure for a long time period.
+# Basically, the role of motive of this store is that keep the products fresh and secure for a long time period.
